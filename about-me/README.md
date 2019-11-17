@@ -21,4 +21,4 @@ I have a system when I get home from  school that I can do anytime within the da
   * eat a snack 
   * eat leftovers from the other day
 * play video games  
-[To see a website click here](https://github.com/)
+[To go back to github click here](https://github.com/)
