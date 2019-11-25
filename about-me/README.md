@@ -10,7 +10,7 @@ augustusr7573@hstat.org
 * 6th period I have physics  
 * 7th I have resource  
 * 8th period I have photagraphy  
-* 9th period I have gym only on Wensday and Thursday  
+* 9th period I have gym only on Wednesday and Thursday  
   
 I have a system when I get home from  school that I can do anytime within the day  
 * wash clothes
